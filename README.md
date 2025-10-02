@@ -1,0 +1,1 @@
+# 2017-2018_stratospheric_smoke_event_observed_by_earlinet
